@@ -1,2 +1,2 @@
-# astrologicalfun.github.io-io
+# astrologicalfun.github.
 The website is for astronomy lovers. 
